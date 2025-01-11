@@ -6,7 +6,7 @@
 - 👨‍💻 Estou cursando bacharelado em Ciências da Computação no **INTELI**
   <a align="center"> e nada menos injusto que a pessoa que me apresentou o Inteli ser o meu buddy: <a href="https://github.com/PiemonteF">Fabinho</a>, em busca do progresso juntos, sempre! 📈 </a>
 
-- 🧠 **"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero**
+- 🧠 **"Não basta conquistar a sabedoria, é preciso usá-la"** - Cícero
 
 - 💬 Pode conversar comigo sobre: **música, esportes, e-sports, habilidades de comunicação, persuasão, cristianismo, desenvolvimento pessoal e social, etc;**
 
