@@ -5,7 +5,7 @@
 
 - 👨‍💻 Estou cursando bacharelado em Ciências da Computação no **Inteli**
 
-- 🧠**"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero.**
+- 🧠 **"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero.**
 
 - 💬 Pode conversar comigo sobre: **esportes, e-sports, habilidades de comunicação, persuasão, cristianismo, desenvolvimento pessoal e social, etc;**
 
