@@ -12,7 +12,7 @@
 
 - 📫 Como se comunicar comigo: **thuliosbacco@gmail.com** ou via <a href="https://instagram.com/thuliobacco_n">**instagram**</a>
 
-- ⚡ Fato desnecessariamente curioso: **sou realmente bom jogando futmesa e sou formado em curso técnico de Piano (11 anos de estudo)**
+- ⚡ Fato desnecessariamente curioso: **sou realmente bom jogando futmesa ⚽ e sou formado em curso técnico de Piano (11 anos de estudo) 🎹**
 
 
 <h3 align="left">Connect with me:</h3>
