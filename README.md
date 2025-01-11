@@ -5,11 +5,11 @@
 
 - 👨‍💻 Estou cursando bacharelado em Ciências da Computação no **Inteli**
 
-- - **"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero.**
+- **"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero.**
 
 - 💬 Pode conversar comigo sobre: **esportes, e-sports, habilidades de comunicação, persuasão, cristianismo, desenvolvimento pessoal e social, etc;**
 
-- 📫 Como se comunicar comigo: **thuliosbacco@gmail.com ou via instagram**
+- 📫 Como se comunicar comigo: **thuliosbacco@gmail.com** ou via **instagram**
 
 - ⚡ Fato desnecessariamente curioso: **sou realmente bom jogando futmesa**
 
