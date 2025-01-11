@@ -8,9 +8,9 @@
 
 - 🧠 **"Não basta conquistar a sabedoria, é preciso usá-la"** - Cícero
 
-- 💬 Pode conversar comigo sobre: **música, esportes, e-sports, habilidades de comunicação, persuasão, cristianismo, desenvolvimento pessoal e social, etc;**
+- 💬 Pode conversar comigo sobre: **música, esportes, e-sports, habilidades de comunicação, persuasão, cristianismo, desenvolvimento pessoal e social, etc...**
 
-- 📫 Como se comunicar comigo: **thuliosbacco@gmail.com** ou via **instagram**
+- 📫 Como se comunicar comigo: **thuliosbacco@gmail.com** ou via <a href="https://instagram.com/thuliobacco_n">**instagram**</a>
 
 - ⚡ Fato desnecessariamente curioso: **sou realmente bom jogando futmesa**
 
