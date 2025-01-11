@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tb7beast&label=Profile%20views&color=0e75b6&style=flat" alt="tb7beast" /> </p>
 
-- 👨‍💻 Estou cursando bacharelado em Ciências da Computação no **Inteli**
+- 👨‍💻 Estou cursando bacharelado em Ciências da Computação no **INTELI**
   <a align="center"> e nada menos injusto que a pessoa que me apresentou o Inteli ser o meu buddy: <a href="https://github.com/PiemonteF">Fabinho</a>, juntos em busca do progresso, sempre! </a>
 
 - 🧠 **"Não basta conquistar a sabedoria, é preciso usá-la" - Cícero**
